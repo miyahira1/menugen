@@ -22,7 +22,7 @@ source: "AI generated"
 
 *(4 toddler portions — about 14–16 small pancakes)*
 
-- 100 g (1 cup) rolled oats (old-fashioned, not instant)
+- 100 g (1 cup) rolled oats — **or instant oats** (see Chef's Tips)
 - 2 very ripe bananas (about 200 g mashed)
 - 2 large eggs
 - 80 ml (⅓ cup) whole milk, breast milk, or unsweetened oat milk
@@ -54,6 +54,9 @@ source: "AI generated"
 - Make a big batch on the weekend and freeze in a single layer — reheat in a dry pan on low heat for 2 minutes per side.
 - As your baby grows (18–24 months), you can fold in small bits of strawberry, grated pear, or a pinch of nutmeg for variety.
 - These are denser and more filling than the banana-egg pancakes — good for a more substantial breakfast.
+- **Using instant oats:** Blend only 10–15 seconds (they're already finer). Reduce milk to 60 ml and rest only 1–2 minutes — instant oats absorb liquid much faster. Add milk by the tablespoon if the batter gets too thick.
+- **One large pancake:** Pour all the batter into a larger pan, lower the heat to minimum, and cover with a lid for 1–2 minutes so the centre cooks through before flipping. Cut into long strips — easier for little hands than small rounds.
+- **Oil:** Use just half a teaspoon of coconut oil (best) or a small knob of unsalted butter. Spread it evenly with a paper towel — too much oil makes the pancake slide and cook unevenly.
 
 ## Notes
 
